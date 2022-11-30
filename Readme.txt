@@ -1,3 +1,3 @@
-Thanks for downloading this template!
+Template reserved to Akash Ghosh
 
 
